@@ -1,4 +1,4 @@
-# :wave: Karen exam
+# :wave: Karen holi <3 
 
 ## 🤓 Course overview and learning outcomes 
 
