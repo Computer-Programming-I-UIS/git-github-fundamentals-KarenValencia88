@@ -1,4 +1,4 @@
-# :wave: Karen test
+# :wave: Karen exam
 
 ## 🤓 Course overview and learning outcomes 
 
